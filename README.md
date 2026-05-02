@@ -1,1 +1,0 @@
-# imagenes-esencial2
